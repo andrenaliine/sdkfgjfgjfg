@@ -1,10 +1,9 @@
-#  ofijoio  oijfoisfosi  fsdfsdfsdfv
+# pensamienot 
 
-parrafo1
-dfgdfgdf
+  wefersfs  
+  fsdfsfsd  
+  dfsfdf
 
-dfgdfgdfg
-dfgfgf
-
-
-dssdsdsdsds
+  <br> stertertte
+  dgdfgdg
+   
